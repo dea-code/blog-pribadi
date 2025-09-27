@@ -1,0 +1,2 @@
+# blog-pribadi
+dea nurlaela
